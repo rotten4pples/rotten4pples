@@ -4,10 +4,9 @@
 
             
 
-${\color{green}✶⋆.˚4V3RY‹𝟹}$
+${\color{#4cad76}✶⋆.˚4V3RY‹𝟹}$
 
-${\color{black}𐔌՞. .՞𐦯 minor}$ <img width="50" height="60" alt="image" src="https://github.com/user-attachments/assets/c4632825-d4ae-4e12-becc-05fb78d5fdc5" />
-
+${\color{#6ccca9}𐔌՞. .՞𐦯 minor}$ <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/c4632825-d4ae-4e12-becc-05fb78d5fdc5" />
 
 ${\color{white}݁ ˖Ი𐑼⋆FTM}$
 
