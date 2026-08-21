@@ -1,19 +1,37 @@
-<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/160d8c4f-882a-4401-b242-f19ea39a392d" />
+<img width="107" height="69" alt="image" src="https://github.com/user-attachments/assets/e40f4326-0f69-40a6-9066-02111e7c274f" /> <img width="107" height="69" alt="image" src="https://github.com/user-attachments/assets/89985f41-35ea-4afd-b976-f6d9b3c68629" /> <img width="107" height="69" alt="image" src="https://github.com/user-attachments/assets/9682e557-81c7-4187-b3be-4046991f8c33" /> <img width="107" height="69" alt="image" src="https://github.com/user-attachments/assets/7666ebd5-01ef-4ddb-bb2a-9ad71bd10a27" /> <img width="69" height="69" alt="image" src="https://github.com/user-attachments/assets/7a6933e9-6b58-4e02-81c7-3ce12745a0b4" />
+
+
+
+
+<img width="1250" height="75" alt="image" src="https://github.com/user-attachments/assets/4fbfe946-622c-4ed3-b027-c925c37fbfc6" />
+
+
 
 
 
 
             
-
-${\color{#6a578a}✶⋆.˚W1F13S‹𝟹}$
-
-${\color{#aea4bd}𐔌՞. .՞𐦯 minor}$ <img align=left width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/75aa0a3d-36a5-41f6-91a6-b57a533a2a6c" />
- />
+ ${\color{#910a18}✶⋆.˚M31K0‹𝟹}$   
+<img align=right width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/2cfe2bc1-b513-41b2-a52e-29ec6657110c" /> <img align=right width="170" height="170" alt="image" src="https://github.com/user-attachments/assets/b75d7b42-1fe7-4705-85aa-586e9b36f772" />
 
 
-${\color{#3f2669}݁ ˖Ი𐑼⋆FTM}$
-
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/20da5218-5e3d-4c88-9ccb-f5eebcd95b29" />
+${\color{#63171f}𐔌՞. .՞𐦯  minor}$ <img align=left width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/6286299a-0bfb-430e-92ad-ad429e9376fc" />
 
 
-<img width="1000" height="400" alt="image" src="https://github.com/user-attachments/assets/55b8e069-4a1c-4bba-b118-49e8917f28ee" />
+ 
+
+
+${\color{#961825}݁ ˖Ი𐑼⋆FTM}$
+
+<img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/07b9141a-f2f4-4df1-87b3-15126484dc7f" />
+
+
+<img width="1100" height="700" alt="image" src="https://github.com/user-attachments/assets/b59b5280-2f82-48e8-962a-804c194cf929" />
+
+
+
+${\color{#63171f}>⩊< ✴︎ checkoutmystrawpage}$ 
+(https://rotten4pples.straw.page)
+
+
+
