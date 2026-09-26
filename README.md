@@ -31,7 +31,7 @@ ${\color{#961825}݁ ˖Ი𐑼⋆FTM}$
 
 
 ${\color{#63171f}>⩊< ✴︎ checkoutmystrawpage}$ 
-(https://rotten4pples.straw.page)
+(https://rotten4pple.straw.page)
 
 
 
